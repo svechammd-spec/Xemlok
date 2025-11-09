@@ -1,5 +1,4 @@
-![Uploading image.png…]()
-
+![imageффф](https://github.com/user-attachments/assets/c3f02f42-fdd5-427d-8bed-d8bbeac803c7)
 
 
 # ✨ Xemlok — Your Shield Against Rug Pulls
