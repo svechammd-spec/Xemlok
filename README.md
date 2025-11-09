@@ -1,4 +1,5 @@
-<img width="697" height="404" alt="Снимаааок экрана 2025-10-30 235723" src="https://github.com/user-attachments/assets/979df628-13dd-4d5a-9348-bcc601044c1a" />
+![Uploading image.png…]()
+
 
 
 # ✨ Xemlok — Your Shield Against Rug Pulls
